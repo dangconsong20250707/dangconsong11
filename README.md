@@ -15,4 +15,4 @@
 
 为了提升用户体验，我们特别注重SEO优化。页面标题、Meta描述、视频标签等都精准融入了“日本AV免费”等关键词，帮助站点在搜索引擎中获得更好的排名。此外，通过设置“今日更新”和“本周热播”等标签，我们保持了站点的活跃度和用户的参与度。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangconsong20250707/dangconsong11 ）</span>
